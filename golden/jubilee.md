@@ -1,0 +1,4 @@
+- [NIA at 50](https://www.nia.nih.gov/research/blog/2024/10/nia-50-strengthening-research-and-workforce-diversity-today-and-future?utm_source=NIA+Main&utm_campaign=e61c93f8f9-blog-researchdiversity-10-16&utm_medium=email&utm_term=0_-8180ce9847-%5BLIST_EMAIL_ID%5D): Strengthening research and workforce diversity today and in the future
+- Across the lifespan of live kidney donors
+- Diverse next generation
+- Generation Ne`X`t
